@@ -47,7 +47,7 @@ Hi, I'm **Murli Sharma**, a data enthusiast and M.Sc. Big Data Analytics student
 
 📫 Let’s connect: 
 - 📧 [murli.analyst@gmail.com](mailto:murli.analyst@gmail.com)  
-- 💼 [LinkedIn](https://linkedin.com/in/murli-vivekanand-sharma-894799283)
+- 💼 [LinkedIn](www.linkedin.com/in/murli-v-sharma)
 
 ---
 
